@@ -1,2 +1,2 @@
 # QuickSetApp
-The projects setup home:)
+The projects setup home🏡👨‍💻
